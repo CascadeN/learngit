@@ -1,2 +1,2 @@
 Lovelive
-Lovelive Sunshine
+Lovelive Sunshine is the next project
